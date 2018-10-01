@@ -1,5 +1,5 @@
 # PALAC-KUBA-DAMIAN
 TUTAJ
-Edycja przez Kube 1
-Edycja przez Stefano
+edycja kuby 1
+edycja kuby 2
 Widzę was!!!
